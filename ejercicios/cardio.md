@@ -33,3 +33,38 @@ El cardio es clave para mejorar la salud del corazón, quemar calorías, fortale
 💪 **Reduce el riesgo de enfermedades crónicas**: Como diabetes tipo 2, obesidad y problemas cardíacos.
  🔥 **Fortalece los músculos y articulaciones**: Evita la pérdida de masa muscular con la edad.
  🩸 **Mejora la circulación sanguínea**: Previene la acumulación de placas en las arterias.
+
+
+
+## Instruciones
+
+Para obtener los mejores resultados y evitar lesiones, sigue estas instrucciones al hacer ejercicios cardiovasculares:
+
+### **1️⃣ Antes de empezar**
+
+✅ **Elige el tipo de cardio**: Puede ser correr, saltar la cuerda, andar en bicicleta, nadar o hacer aeróbicos.
+ ✅ **Usa ropa y calzado adecuado**: Opta por ropa cómoda y zapatillas con buen soporte.
+ ✅ **Hidrátate**: Bebe agua antes, durante y después del ejercicio.
+ ✅ **Haz un calentamiento**: Dedica 5-10 minutos a estiramientos y movimientos suaves para preparar el cuerpo.
+
+### **2️⃣ Durante el ejercicio**
+
+🔹 **Mantén una postura correcta**: Espalda recta, hombros relajados y abdomen contraído.
+ 🔹 **Controla la respiración**: Inhala por la nariz y exhala por la boca.
+ 🔹 **Empieza con una intensidad moderada**: No te esfuerces demasiado al inicio.
+ 🔹 **Aumenta la intensidad progresivamente**: Puedes hacer intervalos de alta intensidad para mejores resultados.
+ 🔹 **Escucha a tu cuerpo**: Si sientes dolor o mareo, detente y descansa.
+
+### **3️⃣ Después del ejercicio**
+
+🔸 **Haz estiramientos**: Ayudan a reducir la rigidez muscular y prevenir lesiones.
+ 🔸 **Hidrátate nuevamente**: Reemplaza los líquidos perdidos.
+ 🔸 **Descansa adecuadamente**: El cuerpo necesita recuperarse para mejorar el rendimiento.
+ 🔸 **Aliméntate bien**: Consume proteínas y carbohidratos saludables para recuperar energía.
+
+### **Ejemplo de rutina de cardio para principiantes (30 min)**
+
+⏳ **5 min** – Calentamiento (movilidad articular, marcha en el sitio)
+ ⏳ **20 min** – Ejercicio principal (correr, saltar la cuerda, HIIT, etc.)
+ ⏳ **5 min** – Enfriamiento (caminar y estiramientos suaves)
+
