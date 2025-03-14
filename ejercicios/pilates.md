@@ -18,3 +18,29 @@ Existen dos tipos principales:
  ✅ **Mejora la respiración y la conciencia corporal.**
  ✅ **Reduce el estrés y la tensión muscular.**
  ✅ **Ayuda en la recuperación de lesiones y rehabilitación.**
+
+
+## 📝 Instrucciones para practicar Pilates
+
+### 1️⃣ Calentamiento previo (5-10 min)
+
+🔹 Movimientos suaves de cuello, hombros y columna.
+ 🔹 Activación del core con respiraciones profundas.
+ 🔹 Pequeñas rotaciones de caderas y estiramientos ligeros.
+
+### 2️⃣ Ejercicios principales (según nivel)
+
+Ejemplo de rutina básica:
+
+🧘‍♂️ **The Hundred (Cien)** – 5 ciclos de respiración.
+ 🏋️ **Roll-Up (Rodar hacia adelante)** – 8 repeticiones.
+ 🔥 **Leg Circles (Círculos con piernas)** – 10 repeticiones por lado.
+ 💪 **Plank (Plancha)** – 30-60 segundos.
+ 🦶 **Bridge (Puente de glúteos)** – 10 repeticiones.
+
+🔄 **Realizar 2-3 series de cada ejercicio**.
+
+### 3️⃣ Enfriamiento y estiramientos (5-10 min)
+
+🔹 Posturas de relajación como la posición del niño.
+ 🔹 Estiramiento de espalda, cuello y pierna
