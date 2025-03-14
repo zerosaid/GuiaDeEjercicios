@@ -42,3 +42,14 @@ Ejemplo de rutina básica:
 
 🔹 Estiramientos estáticos para evitar lesiones y mejorar la recuperación.
  🔹 Respiración profunda para bajar la frecuencia cardíaca.
+
+
+
+## **Consejos y precauciones**
+
+🚨 **Aprende la técnica antes de aumentar la intensidad**.
+ 🚨 **No te sobreexijas**: Ajusta el peso y la velocidad según tu nivel.
+ 🚨 **Descansa lo suficiente**: CrossFit es exigente, el cuerpo necesita recuperación.
+ 🚨 **Mantente hidratado** antes, durante y después del entrenamiento.
+ 🚨 **Usa calzado adecuado**: Evita lesiones con zapatillas estables y antideslizantes.
+ 🚨 **Escucha a tu cuerpo**: Si sientes dolor o fatiga extrema, detente y consulta a un entrenador.
