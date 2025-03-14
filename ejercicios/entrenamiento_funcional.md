@@ -47,3 +47,13 @@ Ejemplo de rutina funcional:
 
 🔹 Estiramientos estáticos para relajar los músculos.
  🔹 Respiración profunda para bajar la frecuencia cardíaca.
+
+
+## ⚠️ Consejos y Precauciones
+
+🚨 **Aprende la técnica antes de aumentar la intensidad**.
+ 🚨 **Evita sobrecargar peso sin control** para prevenir lesiones.
+ 🚨 **No descuides la respiración**: exhala en el esfuerzo y controla el ritmo.
+ 🚨 **Usa ropa y calzado adecuados** para mejorar estabilidad y comodidad.
+ 🚨 **Mantente hidratado** antes, durante y después del ejercicio.
+ 🚨 **Escucha a tu cuerpo**: si sientes dolor, ajusta la intensidad o descansa.
