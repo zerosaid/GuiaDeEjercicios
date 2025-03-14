@@ -12,3 +12,14 @@ A diferencia del entrenamiento tradicional con máquinas, el entrenamiento funci
  ✔ **Cajas de salto y cuerda para saltar**
 
 Este tipo de entrenamiento mejora la **fuerza funcional**, es decir, la capacidad de moverte mejor en la vida diaria y prevenir lesiones.
+
+
+
+## **🔥 Beneficios del Entrenamiento Funcional**
+
+✅ **Mejora la fuerza y resistencia muscular** en todo el cuerpo.
+ ✅ **Aumenta la movilidad y flexibilidad**, reduciendo el riesgo de lesiones.
+ ✅ **Favorece la coordinación y el equilibrio**.
+ ✅ **Ayuda a quemar calorías** y mejorar la composición corporal.
+ ✅ **Fortalece el core (abdomen y espalda baja)**, mejorando la postura.
+ ✅ **Es adaptable a cualquier nivel**, desde principiantes hasta atletas avanzados.
