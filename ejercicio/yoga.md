@@ -49,3 +49,13 @@ Ejemplo de rutina:
 🔹 Relajación en **Savasana (postura del cadáver)**.
  🔹 Respiración profunda y consciente (pranayama).
  🔹 Meditación guiada o en silencio.
+
+
+## ⚠️ Consejos y Precauciones
+
+🚨 **No te fuerces en las posturas**, progresa a tu ritmo.
+ 🚨 **Mantén una respiración fluida y relajada.**
+ 🚨 **Si sientes dolor, detente y ajusta la postura.**
+ 🚨 **Practica sobre una esterilla antideslizante para mayor estabilidad.**
+ 🚨 **Usa ropa cómoda que permita libertad de movimiento.**
+ 🚨 **Sé constante**, los beneficios del yoga se notan con el tiempo.
