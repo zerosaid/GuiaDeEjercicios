@@ -44,3 +44,13 @@ Ejemplo de rutina básica:
 
 🔹 Posturas de relajación como la posición del niño.
  🔹 Estiramiento de espalda, cuello y pierna
+
+
+## ⚠️ Consejos y Precauciones
+
+🚨 **Mantén una respiración controlada** en cada ejercicio.
+ 🚨 **Evita arquear demasiado la espalda**, activa el core.
+ 🚨 **Realiza los movimientos lentamente** para evitar lesiones.
+ 🚨 **Usa ropa cómoda** que permita libertad de movimiento.
+ 🚨 **Si tienes lesiones, consulta con un profesional** antes de comenzar.
+ 🚨 **Sé constante** para notar mejoras en fuerza y postura.
