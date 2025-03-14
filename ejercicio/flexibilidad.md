@@ -42,3 +42,12 @@ Ejemplo de rutina:
 ### **3️⃣ Enfriamiento y respiración (5 min)**
 
 🔹 Termina con estiramientos suaves y respiración profunda para relajar el cuerpo.
+
+
+## ⚠️ Consejos y Precauciones
+
+🚨 **No fuerces demasiado los estiramientos**, la flexibilidad mejora progresivamente.
+ 🚨 **Respira profundamente** mientras estiras para relajar los músculos.
+ 🚨 **Mantén la postura sin rebotes**, los movimientos bruscos pueden causar lesiones.
+ 🚨 **Escucha a tu cuerpo**: si sientes dolor, detente y ajusta la posición.
+ 🚨 **Sé constante**, la flexibilidad mejora con práctica diaria.
