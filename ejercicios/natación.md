@@ -11,3 +11,13 @@ La natación consiste en desplazarse en el agua utilizando diferentes estilos, c
  ✔ **Mariposa:** Movimientos ondulatorios y coordinados de ambos brazos y piernas.
 
 Es un ejercicio que combina resistencia cardiovascular, técnica y fuerza muscular, ideal para todas las edades y niveles de condición física.
+
+
+## 🔥 Beneficios de la Natación
+
+✅ Mejora la capacidad cardiovascular y pulmonar.
+ ✅ Aumenta la fuerza muscular sin impacto en las articulaciones.
+ ✅ Ayuda a mejorar la postura y la flexibilidad.
+ ✅ Reduce el estrés y favorece la relajación.
+ ✅ Quema calorías y favorece la pérdida de peso.
+ ✅ Es ideal para la rehabilitación de lesiones.
