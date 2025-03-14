@@ -68,3 +68,26 @@ Para obtener los mejores resultados y evitar lesiones, sigue estas instrucciones
  ⏳ **20 min** – Ejercicio principal (correr, saltar la cuerda, HIIT, etc.)
  ⏳ **5 min** – Enfriamiento (caminar y estiramientos suaves)
 
+## Consejos y Precauciones
+
+Para hacer ejercicio de forma segura y efectiva, sigue estos consejos:
+
+### **✅ Consejos para un buen entrenamiento**
+
+1️⃣ **Empieza con un calentamiento**: Dedica al menos 5-10 minutos a movilidad y estiramientos dinámicos.
+ 2️⃣ **Aumenta la intensidad de forma gradual**: No intentes hacer demasiado desde el inicio, avanza poco a poco.
+ 3️⃣ **Mantén una postura correcta**: Espalda recta, hombros relajados y abdomen activado para evitar lesiones.
+ 4️⃣ **Usa ropa y calzado adecuado**: Las zapatillas deben amortiguar bien el impacto.
+ 5️⃣ **Controla la respiración**: Inhala por la nariz y exhala por la boca para mejorar el rendimiento.
+ 6️⃣ **Hidrátate bien**: Bebe agua antes, durante y después del ejercicio.
+ 7️⃣ **Descansa entre sesiones**: El cuerpo necesita tiempo para recuperarse y evitar el sobreentrenamiento.
+ 8️⃣ **Escucha a tu cuerpo**: Si sientes mareo, fatiga extrema o dolor, detente inmediatamente.
+
+### **⚠️ Precauciones para evitar lesiones**
+
+🚨 **No ignores el calentamiento y el enfriamiento**: Saltarlos puede aumentar el riesgo de calambres y lesiones.
+ 🚨 **Evita entrenar en exceso**: Hacer demasiado cardio puede afectar los músculos y el metabolismo.
+ 🚨 **No hagas ejercicio con el estómago vacío**: Consume un snack ligero antes para tener energía.
+ 🚨 **Elige el cardio adecuado según tu condición física**: No todos los ejercicios son aptos para todos; consulta a un profesional si tienes problemas de salud.
+ 🚨 **Atención a superficies y terrenos**: Correr en asfalto duro puede afectar las articulaciones; busca suelos más suaves si es posible.
+ 🚨 **Descansa si tienes dolor persistente**: No ignores señales de fatiga o lesiones para evitar problemas más graves.
