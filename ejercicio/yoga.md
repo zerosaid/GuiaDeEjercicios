@@ -12,3 +12,13 @@ Principales estilos de Yoga:
  ✔ **Yin Yoga**: Lento y relajante, con posturas mantenidas por más tiempo.
  ✔ **Bikram Yoga**: Se practica en una sala caliente para favorecer la desintoxicación.
  ✔ **Kundalini Yoga**: Enfocado en la energía, la meditación y los mantras.
+
+
+## 🔥 Beneficios del Yoga
+
+✅ Mejora la flexibilidad y la movilidad articular.
+ ✅ Aumenta la fuerza y el equilibrio corporal.
+ ✅ Reduce el estrés y la ansiedad.
+ ✅ Favorece la concentración y la claridad mental.
+ ✅ Ayuda a mejorar la postura y alivia dolores musculares.
+ ✅ Estimula la circulación sanguínea y fortalece el sistema inmunológico.
