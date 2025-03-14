@@ -44,3 +44,13 @@ Ejemplo de rutina para principiantes:
 
 🔹 Nado suave para relajar los músculos.
  🔹 Estiramientos de brazos, piernas y espalda fuera del agua.
+
+
+## ⚠️ Consejos y Precauciones
+
+🚨 **Aprende la técnica correcta** para evitar lesiones en los hombros y cuello.
+ 🚨 **Controla la respiración** para mejorar la eficiencia del nado.
+ 🚨 **Hidrátate bien**, aunque estés en el agua, sigues perdiendo líquidos.
+ 🚨 **Usa gafas y gorro de natación** para mayor comodidad y rendimiento.
+ 🚨 **Si nadas en aguas abiertas,** verifica las corrientes y la seguridad del lugar.
+ 🚨 **No te exijas demasiado al principio,** mejora progresivamente.
