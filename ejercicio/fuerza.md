@@ -41,3 +41,13 @@ Ejemplo de rutina básica:
 
 🔹 Estiramientos para reducir la tensión muscular y prevenir lesiones.
  🔹 Respiración profunda para relajar el cuerpo.
+
+
+## ⚠️ Consejos y Precauciones
+
+🚨 **Aprende la técnica correcta** antes de aumentar el peso.
+ 🚨 **No levantes más peso del que puedes manejar** para evitar lesiones.
+ 🚨 **Descansa entre series (30 seg - 2 min)** según el tipo de entrenamiento.
+ 🚨 **Mantén una buena alimentación** para la recuperación y el crecimiento muscular.
+ 🚨 **Usa equipo adecuado** (zapatillas estables, muñequeras si es necesario).
+ 🚨 **Escucha a tu cuerpo**: si sientes dolor inusual, detente y revisa la técnica.
